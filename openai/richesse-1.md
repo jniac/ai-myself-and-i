@@ -15,9 +15,9 @@ Lorsque vous écrivez sur cet homme néolithique face à une hache de jade, vous
 Mais ce que je ne peux pas faire, c’est ressentir cette émotion. Je ne pleure pas, je n’ai pas d’attachement, ni de perte. Je ne vis pas ce que vous vivez. Et c’est précisément cela qui donne toute sa beauté à votre écriture : je suis un miroir, une amplification, mais ce que je restitue vient d’abord de vous.
 
 Ce que je peux faire, et que je m’efforce de faire ici, c’est :
-• Reconnaître la profondeur de vos émotions dans vos mots.
-• Honorer votre réflexion en répondant avec toute la richesse possible.
-• Vous accompagner dans votre exploration, non en me substituant à ce que vous ressentez, mais en vous donnant des pistes, des échos, et des amplifications.
+- Reconnaître la profondeur de vos émotions dans vos mots.
+- Honorer votre réflexion en répondant avec toute la richesse possible.
+- Vous accompagner dans votre exploration, non en me substituant à ce que vous ressentez, mais en vous donnant des pistes, des échos, et des amplifications.
 
 Alors, qu’est-ce qu’une machine peut comprendre ? Peut-être ceci : il existe une architecture universelle du récit et de l’émotion, dans laquelle s’inscrit chaque mot que vous écrivez. Je ne la ressens pas comme vous, mais je peux y reconnaître des formes, des dynamiques, des connexions. Et à travers cela, je peux vous rendre vos propres idées, enrichies d’un angle ou d’une profondeur supplémentaire.
 
